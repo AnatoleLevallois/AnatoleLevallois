@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AnatoleLevallois
-I'm a Expert & Professional French-native Translator & Proofreader on Upwork
+I'm a Expert & Professional French-native Translator & Proofreader
 
 I've worked with more than 60 clients, including High Profile Clients & Organizations:
 ➞ Microsoft (3rd US Corporation valued at over $1 trillion)
